@@ -1,4 +1,8 @@
 # 下载
+winbox slot game hacking tool
+free game rate up 80%
+auto rotation 639885
+coin setting admin 
 
 [Google Play](https://play.google.com/store/apps/details?id=moe.shizuku.privileged.api)
 
